@@ -1,0 +1,1 @@
+# Stalavista-Management-Image
